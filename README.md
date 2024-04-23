@@ -2,6 +2,8 @@
 
 Blibili：https://space.bilibili.com/416903638?spm_id_from=333.1007.0.0
 
+嘉立创：https://oshwhub.com/l..t?tab=project&page=1
+
 Makerworld：https://makerworld.com/zh/@lxxt
 
 printables：https://www.printables.com/@notmonsoon_2001082
