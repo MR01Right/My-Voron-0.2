@@ -25,3 +25,4 @@ printables：https://www.printables.com/@notmonsoon_2001082
 7：Kirizu-Screen
 
 。。。
+![image](https://github.com/user-attachments/assets/12f169fb-bfe4-4109-87a9-80dd1b0cf7e4)
