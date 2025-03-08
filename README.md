@@ -1,5 +1,4 @@
 打造一台属于自己独一无二的voron0.2吧
-致敬伟大的开源精神！
 
 voron官方地址：https://www.vorondesign.com/
 
